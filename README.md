@@ -16,3 +16,15 @@ Electric Boogaloo
 ![MallcopMike](https://github.com/FreeGillBordon/StanfordPrisonExperiment2/blob/master/wikileaks/FreeGill7.PNG)
 
 ![MallcopMike](https://github.com/FreeGillBordon/StanfordPrisonExperiment2/blob/master/wikileaks/FreeGill8.PNG)
+
+![MallcopMike](https://github.com/FreeGillBordon/StanfordPrisonExperiment2/blob/master/wikileaks/photo_2020-08-25_13-46-50.jpg)
+
+![MallcopMike](https://github.com/FreeGillBordon/StanfordPrisonExperiment2/blob/master/wikileaks/mallcop1.PNG)
+
+![MallcopMike](https://github.com/FreeGillBordon/StanfordPrisonExperiment2/blob/master/wikileaks/photo_2020-08-24_15-42-04.jpg)
+
+![MallcopMike](https://github.com/FreeGillBordon/StanfordPrisonExperiment2/blob/master/wikileaks/photo_2020-08-24_15-42-36.jpg)
+
+![MallcopMike](https://github.com/FreeGillBordon/StanfordPrisonExperiment2/blob/master/wikileaks/photo_2020-08-13_16-26-51.jpg)
+
+![MallcopMike](https://github.com/FreeGillBordon/StanfordPrisonExperiment2/blob/master/wikileaks/photo_2020-08-24_16-31-07.jpg)
